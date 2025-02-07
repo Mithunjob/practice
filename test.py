@@ -1,9 +1,0 @@
-mithun
-fdsv
-dfv
-fsv
-sfg
-serg
-df
-gsrd
-g
