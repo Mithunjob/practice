@@ -5,3 +5,6 @@ i am Mithun
 i am rama
 i am dad
 lsdl
+i am king
+i am indian
+i am slowman
